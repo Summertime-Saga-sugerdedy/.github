@@ -7,7 +7,9 @@
 Summertime Saga APK adalah game simulasi kencan dan novel visual eksplisit yang dikembangkan oleh Kompas Productions. Game ini mengikuti protagonis laki-laki yang mencoba mengungkap kebenaran di balik kematian ayahnya sambil menghadapi utang kepada mafia, sekolah, dan kehidupan sosial.
 
 # Gameplay di Summertime Saga APK
+
 CLICK UNDUH: [Summertime Saga APK](https://bom.so/qOAwRm)
+
 Gameplay utama fokus pada eksplorasi, manajemen waktu, dan pengembangan karakter:
 
 Kontrol Mouse-Driven: Semua interaksi dilakukan dengan mouse, dengan tombol keyboard tambahan seperti 'V' untuk membaca teks atau 'H' untuk menyembunyikan kotak teks1.
